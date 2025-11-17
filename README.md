@@ -1,4 +1,4 @@
-#  Assalamualaikum, mein hoon **Aniqa Hayat**
+#  Hey, myself **Aniqa Hayat**
 ## 🧭 About Me
 
 **Full Name:** Aniqa Hayat
